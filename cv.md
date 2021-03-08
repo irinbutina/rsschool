@@ -3,7 +3,7 @@
 ## Irina Butina
 
 ## 1. Contacts
-**email:** eresha1231@gmail.com  
+**email:** 1irinbutina@gmail.com  
 **telegram:**  [@eresha1](https://t.me/eresha1)
 
 ## 2. Summary 
